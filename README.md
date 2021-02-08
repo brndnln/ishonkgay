@@ -1,2 +1,2 @@
-# ishonkgay
+# Is honk gay?
 Yes
